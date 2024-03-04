@@ -50,4 +50,4 @@
 
 By using our game, parents and guardians acknowledge and agree to the terms outlined in this Privacy and Policy document.
 
-_Last Updated: [Date]_
+\_Last Updated: 4th March 2024
